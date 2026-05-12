@@ -1,4 +1,4 @@
-# 
+# vip MathType for PC | MathType for Windows Script | numerical-computation + LaTeX-support offers the most advanced MathType for PC | MathType for Windows script, with
 
 
 
